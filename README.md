@@ -1,9 +1,10 @@
 # TERRAFORMING
 
-YOUTUBE Link
+## YOUTUBE Link
 ---
 lnk-
+## 게임 소개
+---
 
-## TERER
 ### TTT
 #### TTT
