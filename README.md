@@ -2,7 +2,7 @@
 
 ## YOUTUBE Link
 ---
-lnk-
+https://youtu.be/Hhana_6slpE
 ## 게임 소개
 ---
 
